@@ -1,2 +1,2 @@
-# randy_chamz22-yahoo.com
+# randy_chamz22@yahoo.co.id
 akun email
